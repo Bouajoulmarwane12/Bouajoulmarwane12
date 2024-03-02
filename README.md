@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Bouajoulmarwane12
+- 👀 I’m interested in development
+- 🌱 I’m currently student at est safi
